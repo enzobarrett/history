@@ -34,3 +34,22 @@ ___
   * Austria-Hungary split into 4 countries
   * Romania gained land, Bulgaria lost land
   * Ottoman Empire broken up
+
+##### Counties gained independence from Russia
+  * Finland
+  * Estonia
+  * Latvia
+  * Lithuania
+
+##### Russia lost land to
+  * Poland
+  * Romania
+
+##### Anger about the treaty
+  * Germany, Against all of it
+  * America, to harsh for Germany
+  * Italy wanted more land from Austria
+  * Japan wanted more land in China
+  * Russia angry that they weren't invited
+  * China angry about Japan
+---
