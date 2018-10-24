@@ -1,4 +1,4 @@
-# Intro to Authoritarian States
+## Intro to Authoritarian States
 
 ### Authoritarian States = Crisis States
 
