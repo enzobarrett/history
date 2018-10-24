@@ -12,3 +12,10 @@
     1. National fascism: Aggressive territorial expansion
   * Mussolini began to become more right wing after 1919
   * He cut the enemy list down to Socialists and the communist revolution
+
+#### Mussolini's Socialism vs actual socialism
+
+  * It differed ideologically because it was largely composed of anti-clerical republicanism. Syndicalism and anarchism were far less important aspects of his ideology. 
+  * Unlike many of his socialist peers, instead of condemning war Mussolini encouraged it, as he thought it would be the catalyst for socialist change Italy needed.
+  * His flavour of socialism also varied from the norm because instead of class struggle, he was far more focused on extreme nationalism
+   
